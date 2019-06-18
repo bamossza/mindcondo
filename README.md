@@ -1,0 +1,1 @@
+# mindcondo.github.io
